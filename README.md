@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @esesms
 - 👀 I’m interested in art, design, coding
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently learning about VR
 - 💞️ I’m looking to collaborate on all things fungi
 - 📫 How to reach me sue.huang@uconn.edu
 
